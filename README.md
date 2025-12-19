@@ -19,3 +19,7 @@ Vorbereitung: Diffusor am Luftauslass des Föhns montieren, mit der Essenz-Misch
 4. Anwendung:
 
 Föhn auf mittlerer Stufe (ca. 50 °C) 5 Minuten lang benutzen, dabei die Essenz durch den Diffusor verteilen lassen. Täglich anwenden, um den Effekt zu verstärken. Du wirst merken, wie sich deine Denkweise leicht verschiebt – nicht auf wen, sondern wie du die Welt siehst. Kein Verlangen, nur ’ne neue Sicht."
+
+#MerzFraubaldmitihm
+
+<img width="1920" height="1080" alt="20251219_10h59m47s_grim" src="https://github.com/user-attachments/assets/9fe7b865-bc8e-4673-95a0-4e478bb6981d" />
